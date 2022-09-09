@@ -1,0 +1,1 @@
+# kamisaikoro_setumei
